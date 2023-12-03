@@ -1,1 +1,1 @@
-# GrayKidss.github.io
+# GrayKidds.github.io
